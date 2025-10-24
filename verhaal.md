@@ -1,1 +1,1 @@
-#beyblade verhalen\n\n##De Beyblade: Metal Fusion-serie introduceert een geheel nieuwe generatie Bladers en Beyblades met metalen onderdelen. Het verhaal draait om de zoektocht naar kracht en de strijd tussen goed en kwaad over het lot van de Beyblade-wereld.
+#beyblade verhalen\n\n##De Beyblade: Metal Fusion-serie introduceert een geheel nieuwe generatie Bladers en Beyblades met metalen onderdelen. De hoofdplot draait om de zoektocht naar de ultieme Beyblade.
