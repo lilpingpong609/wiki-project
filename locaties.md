@@ -1,0 +1,1 @@
+#beyblade locations\n\n##Metal Bey City is de belangrijkste setting met de Beyblade-reparatiewinkel B-Pit. Het verhaal beweegt zich naar het afgelegen Koma Village voor training, en de Beybladers nemen deel aan gevechten in het Bey Forest en het finale Battle Bladers Stadion. De kwaadaardige organisatie, Dark Nebula, opereert vanuit hun geheime Hoofdkwartier.
